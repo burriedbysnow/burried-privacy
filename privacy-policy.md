@@ -20,4 +20,4 @@ We reserve the right to modify this Privacy Policy at any time. Any changes will
 If you have any questions about this Privacy Policy, please do not hesitate to contact us at burriedbysnow@gmail.com.
 
 ## Effective Date
-This Privacy Policy is effective as of May 1, 2024.
+This Privacy Policy is effective as of September 5, 2023.
