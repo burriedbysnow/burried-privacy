@@ -17,7 +17,7 @@ The stored score information is used exclusively for the internal functionalitie
 We reserve the right to modify this Privacy Policy at any time. Any changes will become effective immediately upon the posting of the revised Privacy Policy. We recommend that you review this Privacy Policy regularly to stay informed of any changes.
 
 ## Contact Information
-If you have any questions about this Privacy Policy, please do not hesitate to contact us at burriedbysnow@gmail.com.
+If you have any questions about this Privacy Policy, please do not hesitate to contact us at burriyperryia@gmail.com.
 
 ## Effective Date
 This Privacy Policy is effective as of September 5, 2023.
